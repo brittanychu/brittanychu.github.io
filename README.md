@@ -1,1 +1,1 @@
-# Learn more about me at https://bsc2120.github.io
+# Let's connect: https://bsc2120.github.io
